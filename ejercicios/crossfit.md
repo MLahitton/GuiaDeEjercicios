@@ -23,3 +23,10 @@ Lleva los pies de regreso a la posición de sentadilla.
 Salta explosivamente hacia arriba con los brazos extendidos.
 Aterriza suavemente y repite el ejercicio durante 30-60 segundos o el número de repeticiones indicado.
 
+## Consejos y precauciones
+
+Mantén la espalda recta durante el movimiento y evita curvarla.
+Realiza el ejercicio a un ritmo controlado si eres principiante.
+Si tienes lesiones en rodillas, hombros o espalda, consulta a un especialista antes de hacerlo.
+Puedes omitir la flexión de brazos si tienes poca fuerza o eres principiante.
+Calienta antes de comenzar para evitar lesiones.
