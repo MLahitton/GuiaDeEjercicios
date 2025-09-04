@@ -19,3 +19,11 @@ Combina varios ejercicios en un circuito, realizando cada uno durante 30-45 segu
 Descansa 15-30 segundos entre ejercicios y repite el circuito 2-3 veces.
 Mantén la técnica adecuada en cada movimiento, evitando compensaciones o posturas incorrectas.
 Ajusta la intensidad y el número de repeticiones según tu nivel de condición física.
+
+## Consejos y precauciones
+
+Realiza un calentamiento previo antes de empezar el circuito.
+Utiliza el propio peso corporal o implementos ligeros como bandas elásticas o mancuernas.
+Escucha a tu cuerpo y adapta el entrenamiento si sientes molestias.
+Consulta a un especialista si tienes alguna lesión o condición médica.
+Prioriza la calidad del movimiento sobre la cantidad de repeticiones.
