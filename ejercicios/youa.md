@@ -19,3 +19,11 @@ Dobla la rodilla derecha y coloca la planta del pie derecho en la cara interna d
 Lleva las manos al centro del pecho en posición de oración, o elévalas sobre la cabeza si lo prefieres.
 Mantén la mirada fija en un punto frente a ti para ayudarte a mantener el equilibrio.
 Mantén la postura durante 20-30 segundos y luego cambia de pierna.
+
+## Consejos y precauciones
+
+Evita apoyar el pie en la rodilla para no ejercer presión sobre la articulación.
+Si tienes dificultad para equilibrarte, puedes realizar la postura cerca de una pared.
+Mantén la respiración suave y profunda mientras mantienes la postura.
+Haz la postura despacio y con control para evitar caídas o lesiones.
+Consulta a un especialista si tienes lesiones en las piernas o problemas de equilibrio.
