@@ -20,3 +20,11 @@ Extiende las piernas si puedes, manteniéndolas juntas y en diagonal respecto al
 Bombea los brazos arriba y abajo de manera rápida y corta, sin que toquen el suelo.
 Inhala durante cinco bombeos y exhala durante cinco bombeos, hasta completar cien movimientos con los brazos.
 
+Consejos y precauciones
+
+No tenses el cuello ni los hombros, mantén la mirada hacia las piernas.
+Mantén la zona lumbar apoyada para evitar molestias.
+Si eres principiante, puedes mantener las piernas flexionadas y bajar la intensidad.
+Detente si sientes dolor en la espalda o el cuello.
+Consulta a un especialista si tienes lesiones previas en la columna o el core.
+
