@@ -20,3 +20,9 @@ Alterna lentamente entre ambas posturas, sincronizando el movimiento con la resp
 Realiza 10-15 repeticiones, manteniendo cada postura 3-5 segundos.
 
 ## Consejos y recomendaciones
+
+Realiza el ejercicio sobre una colchoneta o superficie cómoda.
+Evita forzar la espalda o el cuello, mantén movimientos suaves y controlados.
+Si tienes lesiones en la columna, consulta primero a un especialista.
+Mantén la respiración fluida y profunda durante el ejercicio.
+Hazlo despacio si eres principiante.
