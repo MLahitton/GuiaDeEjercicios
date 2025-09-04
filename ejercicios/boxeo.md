@@ -12,3 +12,11 @@ Fortalece los músculos del brazo y el hombro.
 Ayuda a mantener la distancia con el oponente.
 Permite practicar la postura y el equilibrio.
 
+## Instrucciones de cómo realizarlo
+
+Adopta la guardia de boxeo, pies separados al ancho de los hombros, mano dominante atrás y mano adelantada al frente.
+Mantén la barbilla abajo y los codos ligeramente flexionados.
+Extiende el brazo delantero de forma rápida y directa hacia adelante, girando ligeramente el puño al final del movimiento.
+Recupera el brazo a la posición de guardia inmediatamente después de lanzar el golpe.
+Repite el movimiento de forma controlada, alternando velocidad y precisión durante 1-2 minutos.
+
