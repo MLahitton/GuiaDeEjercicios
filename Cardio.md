@@ -19,3 +19,12 @@ Mantén los codos pegados al cuerpo y gira la cuerda usando las muñecas.
 Brinca apenas unos centímetros sobre el suelo, lo suficiente para que la cuerda pase bajo tus pies.
 Mantén una postura recta y mira al frente.
 Realiza repeticiones durante 1-2 minutos, descansa y repite según tu nivel.
+
+# Consejos y precauciones:
+
+Usa calzado deportivo que amortigüe el impacto.
+Realiza el ejercicio sobre una superficie plana y estable.
+Comienza despacio si eres principiante y aumenta el tiempo gradualmente.
+Si sientes dolor en articulaciones o mareo, detente y descansa.
+Evita saltar si tienes problemas graves de rodillas o tobillos.
+Mantén hidratación adecuada antes y después del ejercicio.
