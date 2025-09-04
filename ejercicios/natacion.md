@@ -20,3 +20,10 @@ Evita levantar demasiado la cabeza; solo gira lo necesario para que la boca salg
 Exhala bajo el agua antes de volver a girar la cabeza para respirar.
 Practica el ejercicio durante varias largas de piscina, alternando el lado de la respiración si es posible.
 
+## Consejos y precauciones
+
+Mantén el cuerpo lo más horizontal posible para evitar resistencia.
+No retengas el aire; exhala completamente bajo el agua.
+Practica la respiración en ambos lados para equilibrar la técnica.
+Si eres principiante, realiza el ejercicio despacio y descansa cuando lo necesites.
+Consulta a un especialista si tienes problemas respiratorios o de hombro antes de realizar el ejercicio.
