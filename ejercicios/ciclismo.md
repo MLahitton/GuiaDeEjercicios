@@ -12,3 +12,10 @@ Desarrolla la coordinación y el ritmo en las piernas.
 Reduce el riesgo de lesiones por sobreesfuerzo.
 Permite una mejor adaptación a cambios de ritmo durante el ciclismo.
 
+Instrucciones de cómo realizarlo
+
+Colócate en la bicicleta y ajusta la resistencia a un nivel bajo.
+Comienza a pedalear a un ritmo cómodo durante 2-3 minutos para calentar.
+Aumenta la cadencia (velocidad de pedaladas) durante 30-60 segundos, intentando mantener una técnica fluida y estable sin levantarte del asiento.
+Recupera a ritmo suave durante 1-2 minutos.
+Repite el ciclo de pedaleo rápido y recuperación de 5 a 8 veces.
