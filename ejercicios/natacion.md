@@ -11,3 +11,12 @@ Favorece la coordinación entre el movimiento de brazos y piernas.
 Aumenta la capacidad cardiovascular y la resistencia.
 Reduce la fatiga y mejora el ritmo de nado.
 Ayuda a mantener una posición corporal adecuada en el agua.
+
+## Instrucciones de cómo realizarlo
+
+Nada crol en la piscina manteniendo el cuerpo alineado y relajado.
+Cada tres brazadas, gira la cabeza hacia un lado (izquierdo o derecho) para tomar aire, manteniendo un movimiento suave y natural.
+Evita levantar demasiado la cabeza; solo gira lo necesario para que la boca salga del agua y puedas inhalar.
+Exhala bajo el agua antes de volver a girar la cabeza para respirar.
+Practica el ejercicio durante varias largas de piscina, alternando el lado de la respiración si es posible.
+
