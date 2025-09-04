@@ -3,3 +3,12 @@
 ## Descripción
 
 El pedaleo de alta cadencia es un ejercicio específico de ciclismo que consiste en pedalear a una velocidad elevada durante un periodo corto de tiempo, manteniendo una resistencia baja. Este ejercicio ayuda a mejorar la eficiencia del pedaleo, la coordinación y la capacidad cardiovascular.
+
+## Beneficios
+
+Mejora la técnica y eficiencia del pedaleo.
+Aumenta la capacidad cardiovascular y respiratoria.
+Desarrolla la coordinación y el ritmo en las piernas.
+Reduce el riesgo de lesiones por sobreesfuerzo.
+Permite una mejor adaptación a cambios de ritmo durante el ciclismo.
+
