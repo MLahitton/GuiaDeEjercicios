@@ -18,3 +18,5 @@ Para la postura de gato, exhala y arquea la espalda hacia arriba, llevando la ba
 Para la postura de vaca, inhala y baja el abdomen hacia el suelo, levantando la cabeza y el coxis, sin forzar el cuello.
 Alterna lentamente entre ambas posturas, sincronizando el movimiento con la respiración.
 Realiza 10-15 repeticiones, manteniendo cada postura 3-5 segundos.
+
+## Consejos y recomendaciones
