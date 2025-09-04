@@ -20,3 +20,11 @@ Extiende el brazo delantero de forma rápida y directa hacia adelante, girando l
 Recupera el brazo a la posición de guardia inmediatamente después de lanzar el golpe.
 Repite el movimiento de forma controlada, alternando velocidad y precisión durante 1-2 minutos.
 
+## Consejos y precauciones
+
+Mantén la otra mano protegiendo el rostro mientras lanzas el jab.
+Evita tensar los hombros y mantén el cuerpo relajado.
+Practica frente a un espejo o con un saco para mejorar la técnica.
+Si eres principiante, realiza el movimiento despacio y aumenta la velocidad gradualmente.
+Consulta a un especialista si tienes lesiones en los hombros, muñecas o codos.
+
