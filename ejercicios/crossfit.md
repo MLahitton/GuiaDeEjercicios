@@ -11,3 +11,15 @@ Aumenta la capacidad cardiovascular y la resistencia.
 Desarrolla la coordinación y agilidad corporal.
 Quema calorías y favorece la pérdida de grasa.
 Puede realizarse en cualquier lugar y sin equipamiento.
+
+
+## Instrucciones de cómo realizarlo
+
+Ponte de pie con los pies separados al ancho de los hombros.
+Agáchate en sentadilla y apoya las manos en el suelo frente a ti.
+Lleva los pies hacia atrás para quedar en posición de flexión de brazos.
+Realiza una flexión de brazos (opcional para principiantes).
+Lleva los pies de regreso a la posición de sentadilla.
+Salta explosivamente hacia arriba con los brazos extendidos.
+Aterriza suavemente y repite el ejercicio durante 30-60 segundos o el número de repeticiones indicado.
+
